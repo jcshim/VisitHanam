@@ -9,6 +9,6 @@
   * [관광](https://www.mk.co.kr/news/culture/view/2019/06/438339/)
   * 점심 맛집
   * 1시간 45분
-* 대전 막내처남(1박)  
+* [목포 현대호텔(1박)](https://travel.interpark.com/checkinnow/orderConfirm/200113101286)
   * 2시간 34분  
  
