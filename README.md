@@ -2,6 +2,7 @@
 * 제1일(30일)
   * 문충2리(9:00)->(4시간 32분)->땅끝마을(14:00)
   * [해남관광1](http://naver.me/5ElXbEJH)
+  * ![관광지도](https://m.post.naver.com/viewer/postView.nhn?volumeNo=11758875&memberNo=37257120#)
   * 숙박 [땅끝일출펜선, 해맞이-3층 9만](http://xn--l00b16g8ymw8f9pillj.com/)
 * 제2일(31일)
   * 호텔주변 산책 
